@@ -28,14 +28,23 @@ This week we were also told to get tickets to Refresh an event which is held in 
 Week 2
 ------
 
+So this week we started with the point, line, plane exercises. We are going to be doing a different one each week so this week will be the point exercise. What is this exercise? you may ask and that is a good question.
+
+This exercise envolves you getting a square a few of them, you can draw them your self any size you want our print out a templete of them. So once you have your squares lets say twenty our so on a page, you need to fill them up with one circle/point. It can be done in any way you like just do what you want to do with or with out a reason, but I like to make up funny ones for mine. So once you have done one circle 20 times you can now have to go and do 2,3,5,6,8,9,10,20,50 20 times each. Once you get up to the bigger number you can start to move to the computer as that will just take a lot of time but only if you want to.
+
+
 Week 3
 ------
+
+
 
 Week 4
 ------
 
 Week 5
 ------
+
+
 
 Week 6
 ------
