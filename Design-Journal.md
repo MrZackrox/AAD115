@@ -56,7 +56,11 @@ Week 7
 
 Week 8
 ------
+This week we were of but for a very good reason.
 
+One of the lectures Christopher Murphy has been planning a design conference for the last year and its finally here. So we are attending it this week which can be more benifisual as we are getting to hear experts talk about their work and this could inspire us to take a different path in what we are aim at in life. That might be a bit far but you might find a new understanding of a situation that you have come across, which then you did not see the beauty in it.
+
+So we are actually getting a few days of which is nice but I am taking this time to get caught up on some stuff
 Week 9
 ------
 
